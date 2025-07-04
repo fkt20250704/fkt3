@@ -17,4 +17,4 @@
 
 总之，选择一个靠谱的日本AV免费资源网站，不仅可以节省开支，还能享受高质量的视频内容。只要掌握正确的观看渠道，你就能轻松找到喜欢的影片，体验无忧无虑的看片乐趣。随着平台的不断完善和更新，未来观看日本AV免费资源会变得更加简单和安全。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link]( https://github.com/fkt20250704/fkt3 ）</span>
